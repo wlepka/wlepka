@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wlepka
+- 👀 I’m shoo
+- 🌱 I’m sheesh
+- 💞️ I’m bussin
+- 📫 me drip
